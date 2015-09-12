@@ -8,7 +8,7 @@
   projetos e afins!
   
   Para informaçoes, updates e novidades sobre este projeto,
-  acompanhe: http://www.hackerspacego.org/index.php?title=Usu%C3%A1rio:Milvogabriel
+  acompanhe: http://www.hackerspacego.org/index.php?title=MEM_-_Mini_Esta%C3%A7%C3%A3o_Meteorol%C3%B3gica
   
   Modificado em: 11/09/2015
   
